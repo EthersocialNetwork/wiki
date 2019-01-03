@@ -1,1 +1,1 @@
-EtherSocial Network Wiki
+The EtherSocial Network Wiki
